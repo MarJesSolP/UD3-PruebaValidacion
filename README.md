@@ -1,4 +1,4 @@
-María Jesús Solís Porras -> [Home GitHub](https://github.com/MarJesSol)
+María Jesús Solís Porras -> [Home GitHub](https://github.com/MarJesSolP)
 ---
 ___
 
